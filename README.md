@@ -1,7 +1,7 @@
 - 😸🧸 Hi, I’m @milota27
 - 🌙🎭   I’m interested in sky
 - 🤘🏻🎨 I’m currently learning very things
-- 🐢🌆I’m looking to collaborate on nothimg
+- 🐢🌆I’m looking to collaborate on nothing
 - 🍄🎠 How to reach me...Do not enter
 
 <!---
